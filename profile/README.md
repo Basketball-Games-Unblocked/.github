@@ -4,7 +4,7 @@
 
 **Basketball Stars Unblocked** is an exciting online multiplayer basketball game that allows players to showcase their shooting, dribbling, and dunking skills. Developed by **Madpuffers**, this game offers fast-paced 1v1 or 2v2 basketball action with stunning graphics and smooth gameplay. Whether you're a casual player or a hardcore basketball fan, Basketball Stars Unblocked provides hours of entertainment.
 
-<a href="https://izigames.net/">👉 Basketball Stars Unblocked Games 👈</a>
+## <a href="https://izigames.net/">👉 Basketball Stars Unblocked Games 👈</a>
 
 ## Why Play Basketball Stars Unblocked?
 
